@@ -1,1 +1,0 @@
-# wsMinnie.github.io
